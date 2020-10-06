@@ -1,0 +1,9 @@
+# domywriting
+Welcome to the domywriting wiki!
+This [best custom writing service](https://domywriting.com/custom-writing/) specializes in providing new homeschool books for sale. Although they might be slightly pricier than used alternatives, your child could benefit from new releases that use cutting-edge methods. Alibris also regularly offer discounts of up to 15 percent on their entire stock inventory. Aside from textbooks, they also provide how-to books on making your homeschool a fun place to learn. 
+## Hearts at Home Curriculum
+Hearts at Home is a website that will be a breath of fresh air for homeschooling families who have had to tighten their purse strings. Their aim is to provide resources from leading publishers, with up to 30 percent off the recommended retail price. There are also regular deals launched, some of which can see you get a full year of history lessons for less than $30. Gift certificates are available, and their 10,000 products can be filtered by publisher, grade, or subject. Hearts at Home Curriculum
+## The Back Pack
+If you don't expect glamour from online bookstores, The Back Pack won't disappoint. That said, they've recently re-launched their website, where they specialize in offering rare out-of-print textbooks. This marketplace has been in operation since 1990. If you need advice, their customer service presence is strong, and they are planning to diversify the products they offer in the near future.
+Times have changed thanks to the prolific nature of the Internet. If you wanted to find homeschool books for sale in the 80s and 90s, you'd have to hope that your local bookseller had the titles you needed. Now, if a business doesn't stock what you need, there's another one just a click away that offers free delivery. Embrace the competitive nature of this market, and get the best deal for you and your child today.
+
